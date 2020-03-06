@@ -6,4 +6,6 @@ The guy who built it left clues behind, and eventually someone was able to put t
 
 The point to all my thinking of this was, the creator of Coral Castle did an amazing feat...but because he left behind almost nothing indicating what, how, or why he did this incredible thing...decades later, thousands of people can only imagine impossible origins, and no one has been able to fully replicate what one man did.
 
-I bear no delusions that I am going to create anything of such mythical proportions.  However, unless I document my thoughts and actions, another person who could replicate and expand upon my efforts, might not attempt to do so based on the false belief that it was out of their reach.
+I bear no delusions that I am going to create anything of such mythical proportions, nor do I expect this to be read by anyone but me.  However, unless I document my thoughts and actions, another person who could replicate and expand upon my efforts, might not attempt to do so based on the false belief that it was out of their reach.
+
+So, dear future self, whether I have created Coral Castles or Sand Castles, :beers: here's to an exciting journey, and I hope you have learned as much as I anticipate you will. 
